@@ -1,7 +1,7 @@
 # Recession
 
 ## Full video song 
-Watch it on [YouTube](https://youtu.be/IOcGS4D1tM0)! 
+Watch it on [YouTube](https://youtu.be/inhyJsj9Mu4)! 
 
 ## Lyrics
 Recession क्या हैं? <br/>
